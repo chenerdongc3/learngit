@@ -1,1 +1,1 @@
-没有stupid
+there is no boss
